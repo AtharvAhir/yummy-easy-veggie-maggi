@@ -1,0 +1,1 @@
+the recipe is all about a tasty and yummy 2 minute easy veggie maggi which could be created very easily and yes go and check the simple recipe ingredients and the way to make it in the ingredients and recipe files !!
